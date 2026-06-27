@@ -6,8 +6,9 @@
 
 ### Plan to Watch:
 
-- [Devil Man Crybaby](https://myanimelist.net/anime/35120) | 10 eps
-- [Baccano](https://myanimelist.net/anime/2251) | 12 eps
+- [Devil Man Crybaby](https://href.li/?https://myanimelist.net/anime/35120/Devilman__Crybaby) | 10 eps
+- [Baccano](https://href.li/?https://myanimelist.net/anime/2251/Baccano?q=Baccano&cat=anime) | 12 eps
+
 - [Stein's Gate](https://myanimelist.net/anime/9253) | 26 eps
 - [Id: Invaded](https://myanimelist.net/anime/40046) | 13 eps
 - [Shiki](https://myanimelist.net/anime/7724) | 22 eps
