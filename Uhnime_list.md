@@ -22,6 +22,7 @@
 - [Black Lagoon](https://myanimelist.net/anime/889/Black\_Lagoon) | 2 seasons - 24 eps
 - [Moriarty the Patriot](https://myanimelist.net/anime/40911/Yuukoku\_no\_Moriarty) | 2 seasons - 24 eps
 - [ShinSekai Yori](https://myanimelist.net/anime/13125/Shinsekai\_yori) | 25 eps
+- []
 
 
 
