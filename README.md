@@ -1,4 +1,4 @@
-#### Currently Watching:
+### Currently Watching:
 
 
 
@@ -10,7 +10,7 @@
 
 
 
-#### Plan to Watch:
+### Plan to Watch:
 
 
 
