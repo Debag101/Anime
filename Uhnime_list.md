@@ -20,7 +20,7 @@
 - [Id: Invaded](https://myanimelist.net/anime/40046/Id\_Invaded) | 13 eps
 - [Shiki](https://myanimelist.net/anime/7724/Shiki) | 22 eps
 - [Black Lagoon](https://myanimelist.net/anime/889/Black\_Lagoon) | 2 seasons - 24 eps
-- [Moriarty the Patriot](https://myanimelist.net/anime/40911/Yuukoku\_no\_Moriarty) | 24 eps - 2 seasons
+- [Moriarty the Patriot](https://myanimelist.net/anime/40911/Yuukoku\_no\_Moriarty) | 2 seasons - 24 eps
 - [ShinSekai Yori](https://myanimelist.net/anime/13125/Shinsekai\_yori) | 25 eps
 
 
