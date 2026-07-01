@@ -1,9 +1,9 @@
-# Currently Watching:
+# Currently Watching
 
 
 - Soul Eater (Ep 2/51)
 
-# Plan to Watch:
+# Plan to Watch
 
 - [Devil Man Crybaby](https://www.google.com/url?q=https://myanimelist.net/anime/35120/Devilman__Crybaby) | 10 eps
 - [Baccano](https://www.google.com/url?q=https://myanimelist.net/anime/2251/Baccano?q=Baccano&cat=anime) | 12 eps
