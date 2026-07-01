@@ -1,6 +1,5 @@
 # Currently Watching
 
-
 - Soul Eater (Ep 2/51)
 
 # Plan to Watch
@@ -13,8 +12,9 @@
 - [Black Lagoon](https://www.google.com/url?q=https://myanimelist.net/anime/889/Black_Lagoon) | 2 seasons - 24 eps
 - [Moriarty the Patriot](https://www.google.com/url?q=https://myanimelist.net/anime/40911/Yuukoku_no_Moriarty) | 2 seasons - 24 eps
 - [ShinSekai Yori](https://www.google.com/url?q=https://myanimelist.net/anime/13125/Shinsekai_yori) | 25 eps
+- [Kyousougiga](https://myanimelist.net/anime/19703/Kyousou_Giga_TV) | 10 eps
 
 # Completed
 
-- Acca 13
-- Terror in Resonance
+- Acca 13 (30/06/2026)
+- Terror in Resonance (01/07/2026)
