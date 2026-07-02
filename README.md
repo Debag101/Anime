@@ -1,6 +1,7 @@
 # Currently Watching
 
 - Soul Eater (Ep 2/51)
+- Ergo Proxy (Ep 0/23)
 
 # Plan to Watch
 
