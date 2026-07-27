@@ -2,7 +2,7 @@
 
 - Soul Eater (Ep 2/51)
 - Ergo Proxy (Ep 10/23)
-- Steins;Gate (S1 Ep 3/24)
+- Steins;Gate 0 (Ep 5/24)
 
 # Plan to Watch
 
@@ -20,3 +20,4 @@
 
 - Acca 13 (30/06/2026)
 - Terror in Resonance (01/07/2026)
+- Steins;Gate (24/07/2026)
